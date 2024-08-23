@@ -1,2 +1,0 @@
-# FashionWord
-EL MALDITO REPOSITORIO DEL GRUPO 19!!!!!!!!!!
